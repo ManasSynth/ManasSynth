@@ -1,4 +1,4 @@
-<img width="1820"  src="https://www.canva.com/design/DAGLr4puyOw/bPDkfY5_PDI8l_OwR1ExhA/view?utm_content=DAGLr4puyOw&utm_campaign=designshare&utm_medium=link&utm_source=editor">
+
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=maannas&label=Profile%20views&color=0e75b6&style=flat" alt="maannas" /> </p>
 
