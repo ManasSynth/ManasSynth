@@ -1,4 +1,4 @@
-<img width="1820" alt="Screenshot 2024-04-08 at 10 12 46 AM" src="https://github.com/maannas/maannas/assets/148738351/d9fb3be0-f06d-446f-83ec-24ef50370592">
+<img width="1820"  src="https://www.canva.com/design/DAGLr4puyOw/bPDkfY5_PDI8l_OwR1ExhA/view?utm_content=DAGLr4puyOw&utm_campaign=designshare&utm_medium=link&utm_source=editor">
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=maannas&label=Profile%20views&color=0e75b6&style=flat" alt="maannas" /> </p>
 
